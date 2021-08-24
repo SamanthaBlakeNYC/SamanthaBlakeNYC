@@ -1,2 +1,1 @@
-Hi everyone! My name is Samantha and I am from Westchester county New York. I have a lot of business ideas and the money to invest in others ideas if they are spectacular. What I would really like to do is open up a marijuana dispensary now that it is legal in New York. The first people to do it in New York State will be millionaires. The application to apply is $250,000 on its own so I'm looking for someone with similar ideas and interests to go into business with and build a multiple marijuana dispensary franchise.
-I'm also interested in application development. I have at least five great ideas for apps that don't exist that I know will take off. In that case I would need a tech savvy individual who can do the technical side and I'll handle The financial.
+
